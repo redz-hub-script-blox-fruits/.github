@@ -36,5 +36,5 @@ Welcome to one of the most powerful Blox Fruits scripts on Roblox – **Redz Hub
 
 
 
-👉 [Click here to view the full Redz Hub Script post]((https://scriptrst.com/blox-fruits-auto-farm-hack-redz-hub-2025-free-download/))
+👉 [Click here to view the full Redz Hub Script post](https://scriptrst.com/blox-fruits-auto-farm-hack-redz-hub-2025-free-download/)
 
